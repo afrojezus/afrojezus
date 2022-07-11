@@ -1,4 +1,4 @@
-currently occupied with studies
+currently looking into work, hit me up if you're interested
 
 <!--
 **afrojezus/afrojezus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
