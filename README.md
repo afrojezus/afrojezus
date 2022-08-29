@@ -1,4 +1,4 @@
-currently looking into work, hit me up if you're interested
+currently drinking herbal tea
 
 <!--
 **afrojezus/afrojezus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
